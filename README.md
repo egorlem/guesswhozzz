@@ -1,1 +1,1 @@
-# There’s only one sun 
+# There’s only one sun - but it travels the world everyday.
